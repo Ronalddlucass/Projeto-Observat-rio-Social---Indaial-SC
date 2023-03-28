@@ -1,0 +1,1 @@
+# Projeto-Observat-rio-Social---Indaial-SC
